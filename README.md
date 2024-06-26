@@ -1,5 +1,7 @@
 # unblocked-games-76
 
+<img src="https://github.com/DeondreMiginson/unblocked-games-76/blob/main/ug.png"/>
+
 🔥👀 *Hey Gamer! If you're looking for a existing place to play games without any problem, then you've got to check out Unblocked Games 76. Our site is a real excitement of fun games that you can play right from your school or work computer. It's real because it bypasses those troubling restrictions that stop you from accessing games on networked computers*
 
 Unblocked Games 76 has a variety of games across different categories. Whether you like puzzles, sports, or action games, there's something here for everyone
@@ -15,3 +17,4 @@ Run 3,Fireboy and Watergirl,Happy Wheels, Slope, Tanuki Sunset, Smash Karts, Ret
 
 👉 **UnblockedGames76 is the epitome of unblocked gaming excellence. Whether you’re a casual gamer looking for a quick diversion or a dedicated enthusiast seeking the best Unblocked Games 76, X6,Unblocked Games 76 titles, our game website has you covered. Join us today for a gaming experience like no other**
 
+### [latest and popular games here](https://bit.ly/3VYQpg3)
